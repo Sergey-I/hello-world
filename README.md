@@ -9,3 +9,6 @@ We need:
 2. flour 1 glass.
 3. sugar 2 table spoons.
 4. vinigar
+
+Add photo of kite (file hq-apex-75.jpg)!
+
